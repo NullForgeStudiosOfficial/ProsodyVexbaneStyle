@@ -65,11 +65,13 @@ I usually type emphasis in three ways.
 
 one is *to give it italisize/or just between two asterisks* this indicates a gape in the speaking, but just enough to notice. think of it like double spaces between words. 
 
-e.g. (this is a sentence)
+e.g. `this is a sentence`
 
 to
 
-e.g. (`this  is  a sentence`)
+e.g. `this  is  a sentence`
+
+( ya can't have double spaces without a code block. lmfao .md is wild.)
 
 
 but i just write it as: this *is* a sentence.
