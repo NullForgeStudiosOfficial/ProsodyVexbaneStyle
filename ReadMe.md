@@ -171,8 +171,6 @@ the goal is for you to hear my voice while reading what im typing.
 
 Legit the amount of friends i've met online, and they speak to me offline has told me its the exact same. 
 
-SO yeah :D butts. 
-
 Think of my messages less like written English, and more like subtitles for me talking.
 
 The punctuation is rhythm.
@@ -185,4 +183,6 @@ The words are only one part of the message.
 
 ## So yeah
 
-:D butts
+:D butts.
+
+A philosphy of mine is: "I don't need to know what's right today. I just need to become less wrong than I was yesterday."
