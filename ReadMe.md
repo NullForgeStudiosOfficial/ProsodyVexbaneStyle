@@ -125,7 +125,9 @@ so you can know where the copypaste ended :3
 
 Yes everyone uses emoticons in their typing, but mine are stupid, and can mean different things. 
 
-Also... YES i will substitute a period for an emoticon alot of the times. You're welcome.
+A lot of these are obviously self explainatory...but still need explained, because I would rather you know exactly what you're getting into.
+
+Also... YES i will substitute an emoji/emoticon in place of other punctuation alot of the times. You're welcome.
 
 USUALLY when I type one, i'm also making the face mentally in my head, aaaaaaand sometimes it happens on my IRL face so. Heres a list!
 
@@ -153,6 +155,15 @@ e.e = "really?" or "welp" or "i'm going to shove my foot up your ass side ways" 
 
 
 C: = either very happy same as :D, orrrr the "i'm an innocent angel, i did nothing", 
+
+
+o.o = discovery/realization/bewilderment. not much more to say than that. 
+
+
+o.O = confused, weirded out, a side eye same as ">.>"
+
+
+:o = obviously mouthagape, or a facial "ohhhhhhh" kind of deal. 
 
 
 I think other than thooooose? I just use an emoji via Nullmoji. suck it. 
