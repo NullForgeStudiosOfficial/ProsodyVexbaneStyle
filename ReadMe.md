@@ -100,6 +100,27 @@ if its a BUNCH of periods like "..................................."
 
 That's just my brain going through 39874098273047234 thoughts ats the same time due to ADHD, and me sorting it out...usually.
 
+### Tilde
+
+I view it as the tone of a voice going up, down, then up again. 
+
+So i see it as "sing songy" when added to the end of a sentence. 
+
+something like "You don't know~" is teasing, and the "know" goes from a regular pitch in voice to high, or to low.
+
+Think of a brat in BDSM 🤷 they do that shit a lot. 
+
+### Equals Three
+
+nah, not the ray william johnson show. 
+
+but. when i go "===" in a chat. it usually means i just pasted a whole ass bunch of text. 
+
+and then i'll new line, throw in 3 equal signs as a divider. and then start talking after it. 
+
+so you can know where the copypaste ended :3
+
+
 ## Emoticons
 
 Yes everyone uses emoticons in their typing, but mine are stupid, and can mean different things. 
